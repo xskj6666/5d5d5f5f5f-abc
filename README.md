@@ -84,7 +84,7 @@ https://xxxx.workers.dev
 使用邀请码，您与好友各增加 1 个注册额度。
 ## 邀请码：FQE4D39C49
 ### 域名有效期10年或1年，看脸
-![图片1](https://123.tv1288.xyz/04331.png)
+![图片1](https://raw.githubusercontent.com/5d5d5f5f5f/10102/main/04331.png)
 
 
 
